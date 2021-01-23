@@ -1,1 +1,0 @@
-# ali-ahmad.github.io
